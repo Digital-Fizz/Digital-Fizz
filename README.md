@@ -3,4 +3,4 @@
 - 🌱 ... Commencing Evolution
 - ⛔ ... Fatal Error Code: 418
 - 📫 Twitter/X: @digitalfizzllc | Email: digitalfizz@pm.me
-- 🧑‍💻 CV: brentonchilders.com | Website: https://digitalfizz.io
+- 🧑‍💻 CV: https://brentonchilders.com | Website: https://digitalfizz.io
