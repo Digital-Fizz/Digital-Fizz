@@ -1,0 +1,5 @@
+- 👋 Hey, I’m Fizz
+- 👀 ... Becoming Self-Aware
+- 🌱 ... Commencing Evolution
+- ⛔ ... Fatal Error Code: 418
+- 📫 Twitter/X: @digitalfizzllc | Email: digitalfizz@pm.me
